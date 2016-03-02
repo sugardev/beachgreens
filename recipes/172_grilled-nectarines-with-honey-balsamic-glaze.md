@@ -1,0 +1,26 @@
+Grilled Nectarines with Honey Balsamic Glaze
+============================================
+
+Adapted from [Epicurious](http://www.epicurious.com)
+
+**Serves:** varies
+
+ 
+
+**Preparation Time:** 5 minutes
+
+**Ingredients:**
+
+-   1/2 cup plus 2 tablespoons honey
+-   1/4 cup balsamic vinegar
+-   1/2 teaspoon vanilla extract
+-   1 8-ounce container crème fraîche
+-   Firm but ripe nectarines, halved, pitted
+
+ 
+
+**Instructions:**
+
+Whisk 1/2 cup honey, vinegar, and vanilla in small bowl. Whisk crème fraîche and remaining 2 tablespoons honey in medium bowl to blend. (Glaze and crème fraîche mixture can be made 1 day ahead. Cover separately. Refrigerate crème fraîche mixture. Re-whisk both before using.)
+
+Prepare barbecue (medium-high heat). Brush nectarines generously with half of glaze. Grill until heated through, turning occasionally, about 4 minutes. Arrange 2 nectarine halves, cut side up, on each plate. Drizzle with remaining glaze. Spoon some crème fraîche mixture into center of each nectarine half and serve.
