@@ -1,0 +1,39 @@
+Roasted Beet and Sugar Snap Pea Salad
+=====================================
+
+Adapted from: [Epicurious](http://www.epicurious.com/recipes/food/views/Roasted-Beet-and-Sugar-Snap-Pea-Salad-606#ixzz1FNR0jaX4)
+
+**Serves:** 4
+
+ 
+
+**Preparation Time:** 1.5 hours, largely unattended
+
+**Ingredients:**
+
+-   3 medium beets, trimmed
+-   1/2 pound sugar snap peas, trimmed
+-   1 tablespoon plus 1 teaspoon Dijon mustard
+-   1 tablespoon plus 1 teaspoon cider vinegar
+-   1/4 cup olive oil
+-   3 tablespoons chopped fresh dill or 1 tablespoon dried dill
+-   1 1/2 teaspoons sugar
+-   1 bunch fresh arugula, trimmed (or other greens, such as lettuce, or chard or spinach)
+
+ 
+
+**Instructions:**
+
+Preheat oven to 375°F. Wrap beets in aluminum foil. Bake until tender, about 1 hour 15 minutes. Cool. Peel beets and cut into wedges.
+
+ 
+
+Cook sugar snap peas in large saucepan of boiling salted water until crisp-tender, about 1 minute. Drain. Rinse with cold water; drain well. Pat dry.
+
+ 
+
+Mix mustard and vinegar in small bowl. Gradually mix in oil, then dill and sugar. (Can be prepared 4 hours ahead. Cover sugar snap peas and chill. Cover dressing and beets separately and let stand at room temperature.)
+
+ 
+
+Line platter with arugula. Mix beets, sugar snap peas and dressing in medium bowl. Season with salt and pepper. Spoon atop arugula.
